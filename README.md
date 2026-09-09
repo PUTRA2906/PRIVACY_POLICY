@@ -1,4 +1,4 @@
-Privacy Policy for [Nooji]
+Privacy Policy for Nooji
 
 1. Information Collection
 
